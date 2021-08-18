@@ -1,2 +1,1 @@
-# NoobMCBG
-I Am NoobMCBG
+Sorry Am Update
